@@ -12,7 +12,7 @@ Growing weed notes.
 
 # Germination 
 
-Use warm mist humidifier and big oscillating fan.
+Use warm mist humidifier and big 12" oscillating fan for first 3 weeks. Remove the fan from the room and replace the warm mist humidifier with ultra sonic.
 
 # Ventilation
 

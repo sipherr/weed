@@ -7,6 +7,8 @@ This is my grow journal to remind me of mistakes Ive made.Documenting the averag
 4x4 Vivosun tent
 4 inch exhaust
 
+# Equipment 
+Lights fans pots etc... put links here with amazon to products.
 
 
 # Germination 

@@ -1,7 +1,6 @@
 # The Autoflower Bible
-Documenting the average lifecycle of autoflowering cannabis plants.
-# weed
-Growing weed notes.
+This is my grow journal to remind me of mistakes Ive made.Documenting the average lifecycle of autoflowering cannabis plants.
+
 
 # Grow Room
 
